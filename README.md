@@ -1,0 +1,1 @@
+# Warranty-The-Activation-S6-Pro-UK-
